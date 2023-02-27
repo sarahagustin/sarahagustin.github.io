@@ -1,2 +1,2 @@
-# sarahagustin.github.io/Ayam Teknik
+# sarahagustin.github.io
 UMKM Makanan Ayam Teknik
